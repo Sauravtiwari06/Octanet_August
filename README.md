@@ -1,2 +1,0 @@
-# Octanet_August
-Internship
